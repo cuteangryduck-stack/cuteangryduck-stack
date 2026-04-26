@@ -8,4 +8,8 @@
 - 📫 How to reach me: Email me at any of my emails (cute.angryduck@gmail.com)
 - 🥕 Pronouns: I'm a carrot (trust)
 - 🤨 Fun fact: The biggest op is employment
+- 🏫 My school blocked github pages, so I have to make other links now ):
+- 🪙 I'm poor, so I have to use freedns's subdomains...
+- 🥱 I'm bored, so please send me an email!
+
 
